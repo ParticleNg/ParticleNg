@@ -6,4 +6,4 @@
 
 💞️ I’m looking to collaborate on fintech geekers
 
-📫 You can reach me at 
+📫 You can reach me at nqdinh83@gmail.com
